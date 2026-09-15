@@ -1,8 +1,9 @@
-## 🧩
+## 🧩 
 
 
- 🏴‍☠️🏴‍☠️ Psudonymous builder, neurodivergent solving problems, creative technologist, AI education content creator 
+ 🏴‍☠️🏴‍☠️ FDE, pseudonymous builder, neurodivergent solving problems, creative technologist, AI education content creator. 
 
+## 
 
  
  
